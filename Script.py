@@ -27,7 +27,7 @@ Hᴇʀᴇ Is Tʜᴇ Hᴇʟᴘ Fᴏʀ Mʏ Cᴏᴍᴍᴀɴᴅs.</b>"""
 
 ᴀɴʏ ᴀᴍᴏᴜᴛ ᴍᴀᴋᴇꜱ ᴀ ʜᴜɢᴇ ᴅɪꜰꜰᴇʀᴇɴᴄᴇ🤜
 
-‣ ‣ᴜᴘɪ ɪᴅ : devloped@kotak
+‣ ‣ᴜᴘɪ ɪᴅ : devlopednow@kotak
 
 ‣ᴄᴏɴᴛᴀᴄᴛ ᴅᴇᴠ : <a href='http://t.me/My_Name_is_developer'>Abhishek</a> 
 
@@ -194,7 +194,7 @@ Nᴀᴍᴇ - {}"""
 
 12 ᴍᴏɴᴛʜꜱ - ₹170
 
-•ᴜᴘɪ ɪᴅ : devloped@kotak
+•ᴜᴘɪ ɪᴅ : devlopednow@kotak
 
 •ꜰᴏʀ Qʀ ᴄᴏᴅᴇ : Qʀ ᴄᴏᴅᴇ ɪꜱ ɪɴ ᴛᴏᴘ ɪᴍᴀɢᴇ
 
